@@ -7,7 +7,7 @@
 ***harper/quince/ford/umberlee***\
 *collective he/him*\
 *collectively nonhuman*\
-*ambiguously trans, gay, xenogender and aroaceaplflux*\
+*ambiguously trans, gay, xenogender and aspec*\
 *traumagenic system* (ENDOS FUCK OFF!!!)
 
 uniquely loserish, impressively dumb, he does it all!

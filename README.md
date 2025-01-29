@@ -49,8 +49,6 @@ adults and endo neutrals are on thin ice but disregard such if i interact first\
 
 ![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
 
-![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
-
 ## bye bye losers
 
 ![](https://64.media.tumblr.com/40f1e938a0bed10d4e9d122cae7b6e0d/3431d6708fef258b-dd/s400x600/c68939bccc0f80b9db45846531e225d329743d70.gifv)

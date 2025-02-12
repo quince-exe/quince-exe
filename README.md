@@ -2,7 +2,7 @@
 
 ## to an anchor ever-dropped, seasick yet still docked /lyr
 
-![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)\
 ***harper/quince/ford/umberlee***\
 *collective he/him*\
 *collectively nonhuman*\
@@ -13,7 +13,7 @@ uniquely loserish, impressively dumb, he does it all!
 ![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
 
 ## about this loser
-![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)\
 MINOR!!! adults iwec\
 trans-but-not-in-any-particular-direction (fine with being called transmasc, transfem, transneu, transandro, etc.)\
 gay (generally ambiguous but in most cases it's mln)\
@@ -25,7 +25,7 @@ tieflingkin, vampirekin, divinekin, robotkin, objectkin and fictionkin
 
 ## links
 
-![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)\
 [pronouns.page](https://en.pronouns.page/@quince_txt)\
 [strawpage](https://illusion-of-isolation.straw.page/)\
 [base tumblr](https://www.tumblr.com/illusion-of-isolation)\
@@ -35,13 +35,13 @@ tieflingkin, vampirekin, divinekin, robotkin, objectkin and fictionkin
 
 ## oh, what fun, he has a dni
 
-![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)\
 basic criteria, pro-endos, radqueers, anti-kin, pro-factkin, narc abuse truthers, anti-liom, zionists, radfems and anti-recovery (sh/edblr, irl/da spaces, etc.)\
 adults and endo neutrals are on thin ice but disregard such if i interact first
 ![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
 
 ## jesus christ he's found so many goddamn graphics to put here
-![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
+![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)\
 ![](https://64.media.tumblr.com/8f1bb7f1985d7b3b4936a90be1ce3cad/a2b9a9b92798b874-6b/s250x400/e1e7648a646be2f95650d3460d2079b46160314c.gifv)![](https://64.media.tumblr.com/9afe5f2147d1566360644588059f2cc0/5ae275cb5323d09f-e7/s250x400/e809711520bf5209e35e66598c0bda441e135957.gifv)![](https://64.media.tumblr.com/e14e4973f73ea18b2a560548b06c4325/e82a9758aa9a0ad9-13/s250x400/c5566867086db38042f25224b630b07427785a42.gifv)\
 ![](https://64.media.tumblr.com/85129797db53bb94ef7fe6f061c07c6d/7fd8de99c27e763a-c8/s250x400/8ba53e60b9deb61159c7a00d174faaf0f39c5668.gifv)![](https://64.media.tumblr.com/1cdef33fe7858e88a4d756531247f4ab/dd0b327050c59e98-3f/s250x400/c5094d129796cbf2a87aec398158c2306537bd79.gifv)![](https://64.media.tumblr.com/1a6923c14dd86b36203209892f4fef0c/f55822e4c0720452-99/s250x400/22f3a43dccd30f7a83686c8d3298d4dd239c7b3d.gifv)\
 ![](https://64.media.tumblr.com/9ed0667d8e6a85896f89de35f77a6aaa/806d4619ca73f063-21/s250x400/2e88e4dcbefc68210d4dc9c3dd2db2b275f21c9b.gifv)![](https://64.media.tumblr.com/067e9e8537f9f037288435f9905a9c4d/baf41b79d8f82464-b5/s250x400/b700999d9ef4684debcd2fa90125f217664caef5.gifv)![](https://64.media.tumblr.com/804a06782fc418dcb2028b4b7080a27f/cf90d1c710160785-c3/s250x400/d55fb60466589686e96c8b45b2d39918f87a2c6f.gifv)\

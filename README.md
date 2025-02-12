@@ -21,7 +21,7 @@ uniquely loserish, impressively dumb, he does it all!
 MINOR!!! adults iwec\
 trans-but-not-in-any-particular-direction (fine with being called transmasc, transfem, transneu, transandro, etc.)\
 gay (generally ambiguous but in most cases it's mln)\
-aroflux, aplflux, afamilial, asexual and asensual (asensual and asexual to living things, at least)\
+aroflux, aplflux, afamilial, asexual and asensual (asensual and asexual to non-objects, at least)\
 objectum\
 asd, sad (the anxiety one, not seasonal affective), npd, ocd. please for the love of god be careful\
 tieflingkin, vampirekin, divinekin, robotkin, objectkin and fictionkin

@@ -7,9 +7,9 @@
 *collective he/him*\
 *collectively nonhuman*\
 *ambiguously trans, gay, xenogender and aspec*\
-*traumagenic system* (ENDOS FUCK OFF!!!)
+*traumagenic system* (ENDOS FUCK OFF!!!)\
 
-uniquely loserish, impressively dumb, he does it all!
+uniquely loserish, impressively dumb, he does it all!\
 ![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
 
 ## about this loser

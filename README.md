@@ -20,7 +20,7 @@ gay (generally ambiguous but in most cases it's mln)\
 aroflux, aplflux, afamilial, asexual and asensual (asensual and asexual to non-objects, at least)\
 objectum\
 asd, sad (the anxiety one, not seasonal affective), npd, ocd. please for the love of god be careful\
-tieflingkin, vampirekin, divinekin, robotkin, objectkin and fictionkin
+tieflingkin, vampirekin, divinekin, robotkin, objectkin and fictionkin\
 ![](https://64.media.tumblr.com/3837f81efb037b78d5f3b83136abd9ff/a2b9a9b92798b874-24/s400x600/0c9e64c94fb660d3ef32326e9c1a891cab720857.pnj)
 
 ## links
